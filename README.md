@@ -1,2 +1,2 @@
 # hello-world
-Just getting started.
+DougMacD13 here. I'm a visual & UX/UI designer with 20+ years experience creating digital assets for web, mobile, and print. Adept at applying my creativity and problem-solving abilities in generating design concepts, graphics, and user interface solutions to a variety of projects, including: mobile and web applications, corporate identity and branding, marketing and promotional materials, interactive experiences, and multimedia presentations. Throughout my career I have successfully melded my passion for creative visual storytelling and my love of learning and sharing knowledge.
